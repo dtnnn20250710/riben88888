@@ -22,4 +22,4 @@
 
 点击任意入口，立即进入2025年最受欢迎的日本成人影片资源站！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben88888 ）</span>
